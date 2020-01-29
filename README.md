@@ -1,2 +1,0 @@
-# LIZZZZZZZZKA
-for practice
